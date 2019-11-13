@@ -1,6 +1,5 @@
 # Felipe Operário Ribeiro
 **Ecumenic Creative Operations** Director: https://ecumenic.github.io
-
 * **Biography:** http://bit.do/operarioribeiro-bio
 * **Resume:** http://bit.do/operarioribeiro-resume
 * **Visuals & Multimedia Works:** https:/flickr.com/photos/ecumenic/albums
