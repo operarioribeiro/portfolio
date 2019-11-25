@@ -3,6 +3,7 @@
 * **Biography:** https://bit.do/operarioribeiro-bio
 * **Resume:** https://bit.do/operarioribeiro-resume
 * **LinkedIn:** https://linkedin.com/in/operarioribeiro
+* **Selected Portfolio:** https://bit.do/ecumenic-portfolio
 * **Visuals & Multimedia Works:** https://flickr.com/photos/ecumenic/albums
 * **Faith-Inspired Photos:** https://instagram.com/ecumenictimes
 * **Soundart & Music:** https://ecumenic.bandcamp.com
